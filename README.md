@@ -230,4 +230,4 @@ Hell is Us is available as a complete free version with all features and updates
 Experience the captivating world of Hell is Us today! Click the download button and embark on your adventure.
 
 ---
-**Last updated:** 2026-10-04 22:45:35 UTC
+**Last updated:** 2026-10-05 01:37:06 UTC
